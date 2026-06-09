@@ -1,4 +1,4 @@
-# 
+# Ultimato Nitro PDF scripts para Mac OS | Leve Nitro PDF scripts para PC Windows. Com divisão de PDF e histórico de versões — otimizado para máximo desempenho em cada plataforma.
 
 
 
